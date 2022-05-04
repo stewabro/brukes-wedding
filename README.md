@@ -1,4 +1,4 @@
-# Bruke's Wedding
+# [Bruke's Wedding](https://www.zola.com/wedding/stewartrosswedding)
 
 ## Thursday (Rehearsal)  
 Wedding rehearsal. This one is important so please come if you're in town :) 
