@@ -11,7 +11,7 @@ Fox Hills Golf and Banquet Center - Golden Fox
 Plymouth, MI 48170  
 *Note*: There's 3 venues at Fox Hills so make sure to follow the signs to the Golden Fox.  
 
-## Friday (Picnic)  
+## [Friday (Picnic)](https://hbnb.io/a/pNJU/)
 We're having a thank you picnic for the bridal party and family on Friday evening. Not required at all, just come by if you feel like it. There will be food and beer.   
 
 **Time**: 4-7pm, come by any time  
@@ -24,7 +24,7 @@ Northville, MI 48167
 ## Saturday (Bruke does marriage)  
 Schedule TBD  
 
-## Sunday (Brunch)  
+## [Sunday (Brunch)](https://hbnb.io/a/XReS/)
 Also very optional - brunch at the Hilton for bridal party and family. If you feel like it you can stop in for some free breakfast  
 
 **Time**: 9-11am  
