@@ -22,6 +22,7 @@ Maybury State Park - Oak Shelter
 Northville, MI 48167  
 
 ## Saturday (Bruke does marriage)  
+Note: all of us are getting ready at the Hilton Garden Inn in Plymouth.  
 Bridesmaids + moms + Kasie:
 | Time | Activity |
 | --- | ----------- |
