@@ -22,7 +22,18 @@ Maybury State Park - Oak Shelter
 Northville, MI 48167  
 
 ## Saturday (Bruke does marriage)  
-Groomsmen:
+Bridesmaids + moms + Kasie:
+| Time | Activity |
+| --- | ----------- |
+| 8-8:30   | Meet at getting ready room for breakfast  |
+| 12   | Lunch   |
+| 1-2:30   | Bridesmaids and Brooke getting ready photos     |
+|  2:30  | Leave for venue   |
+| 2:45-3:30   | Bridesmaid photos at venue   |
+| 3:30-5   | Chillin   |
+| 5   | Bruke gets married   |
+
+Groomsmen + dads:
 | Time | Activity |
 | --- | ----------- |
 | 1:45    | Meet at Luke's hotel room already dressed  |
@@ -38,17 +49,6 @@ Ushers:
 | 3:45    | Meet at Fox Hills  |
 | 3:45-4:30   | Photos at venue   |
 | 4:30-5   | Usher the people   |
-| 5   | Bruke gets married   |
-
-Bridesmaids:
-| Time | Activity |
-| --- | ----------- |
-| 8-8:30   | Meet at getting ready room for breakfast  |
-| 12   | Lunch   |
-| 1-2:30   | Bridesmaids and Brooke getting ready photos     |
-|  2:30  | Leave for venue   |
-| 2:45-3:30   | Bridesmaid photos at venue   |
-| 3:30-5   | Chillin   |
 | 5   | Bruke gets married   |
 
 ## [Sunday (Brunch)](https://hbnb.io/a/XReS/)
