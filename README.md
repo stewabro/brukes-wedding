@@ -5,6 +5,8 @@ Wedding rehearsal. This one is important so please come if you're in town :)
 
 **Time**: 5pm
 
+**Attire**: Casual
+
 **Location**:  
 Fox Hills Golf and Banquet Center - Golden Fox 
 8768 N Territorial Rd  
@@ -38,7 +40,7 @@ Groomsmen + dads:
 | Time | Activity |
 | --- | ----------- |
 | 1:45    | Meet at Luke's hotel room already dressed  |
-| 2-3   | Getting ready photos       |
+| 2-3:30   | Getting ready photos       |
 | 3:30   | Guys leave for venue     |
 | 3:45-4:30   | Photos at venue   |
 | 4:30-5   | Chillin   |
@@ -55,7 +57,9 @@ Ushers:
 ## [Sunday (Brunch)](https://hbnb.io/a/XReS/)
 Also very optional - brunch at the Hilton for bridal party and family. If you feel like it you can stop in for some free breakfast  
 
-**Time**: 9-11am  
+**Time**: 9-11am
+
+**Attire**: Casual
 
 **Location**:  
 Hilton Garden Inn Plymouth - Garden Room  
